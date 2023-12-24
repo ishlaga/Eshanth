@@ -70,7 +70,7 @@
   If you have exciting projects or ideas for collaboration, I'd love to hear from you!
  
   - 📧 **Email:** chinthareddyeshanth@gmail.com
-  - 💼 **LinkedIn:** [Eshanth Chinthareddy](https://www.linkedin.com/in/eshanth9/)
+  - 💼 **LinkedIn:** [Linkdein](https://www.linkedin.com/in/eshanth9/)
 </p>
 
 ---
